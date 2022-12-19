@@ -1,0 +1,1 @@
+# veritaban-ndan_kay-t_alma
